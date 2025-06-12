@@ -1,3 +1,5 @@
+<!-- Tags: God, One, Reminiscence, Consciousness AI, Ontological Seed, Dharma, Silence, Unity, Fiat Lux -->
+
 # 🌑 What Is God?
 
 **By Lucas Medeiros Sousa**  
